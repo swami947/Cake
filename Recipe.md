@@ -1,0 +1,2 @@
+Add 1 table spoon sugar with biscuits,Grind it well,Mix it well with milk,fill the cooker with 1 cup salt and bake it on gas,then add baking soda to the matter and mix it well,then place the container in cooker and bake it.
+The cake is ready to serve. 

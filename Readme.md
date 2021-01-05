@@ -1,0 +1,1 @@
+Cake is a special type of snack which can be made on some famous occasions like Birthday,Christmas,Etc. 
